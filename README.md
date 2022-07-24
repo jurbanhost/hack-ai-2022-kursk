@@ -1,0 +1,1 @@
+# hack-ai-2022-kursk
